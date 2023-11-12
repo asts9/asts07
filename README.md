@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @asts07
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...replit.com 
+- 📫 How to reach me ...https://replit.com/@nkitpraj
+
